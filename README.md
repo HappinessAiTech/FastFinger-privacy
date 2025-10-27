@@ -1,8 +1,8 @@
-Privacy Policy for Best Finger
+Privacy Policy for Fast Finger
 
 Last updated: October 27, 2025
 
-Thank you for playing Best Finger ("the App"). This Privacy Policy describes how your information is collected, used, and shared when you use our application.
+Thank you for playing Fast Finger ("the App"). This Privacy Policy describes how your information is collected, used, and shared when you use our application.
 
 **1. Information We Collect**
 
